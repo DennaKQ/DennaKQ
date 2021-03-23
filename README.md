@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DennaKQ
+- 👀 I’m interested in computational skills.
+- 🌱 I’m currently learning english and hacking
+- 💞️ I’m looking to collaborate on a basic project uwu
